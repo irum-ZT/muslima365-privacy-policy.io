@@ -1,11 +1,6 @@
 
  
-Privacy Policy Preview
-ADD TO WEBSITE
-EDIT
-DELETE
-PRIVACY POLICY
-Last updated January 19, 2026
+Privacy Policy 
 
 
 
